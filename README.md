@@ -8,7 +8,6 @@ Outlook官网：[https://outlook.live.com](https://outlook.live.com)
 ![image](https://github.com/rabnawazsahib035/Free-Mail/assets/169972084/8171ed9b-1a48-49b5-af5d-9bbf3fe1154a)
 
 
-> 推荐一个虚拟信用卡开卡平台，包含香港、美国万事达VISA等多种卡头，0月费使用门槛极低，微信支付宝均可开通使用。支持开通各类海外平台：ChatGPT、Netflix、OnlyFans、Ebay、Shopify、Github、TikTok、Paypal 等各类订阅海淘平台。点击查看详情：[https://www.fomepay.com/](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
 
 ## 2. ProtonMail
 ProtonMail是一款以安全著称的端到端加密邮箱，总部位于瑞士日内瓦。ProtonMail提供了免费版与付费版。免费版也足够满足大多数用户的需求。
